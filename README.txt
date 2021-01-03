@@ -1,0 +1,1 @@
+I did not collaborate with anyoneo else nor employed outside resources.
